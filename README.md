@@ -7,7 +7,7 @@ Enjoy that your hard work got you that so you can enjoy a little, go out tonight
 But don't lose focus guy stay on your grind, people will want what you got stay on their necks!!!
 Let me tell you something thats gonna make you laugh, as of right now 10:00am on 6/22/17 you broke as a joke.
 In your capitol one 360 checings there is exactly $0.
-You owe Westfield $1,5000.
+You owe Westfield $1,500.
 And you have no plans for school or the future other than blind optimism and a new found sense of hard work
 
 You maintained and perseveried my guy and for that I'm proud, but like I said don't ever lose sight.
